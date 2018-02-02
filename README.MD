@@ -1,3 +1,3 @@
 
 *Alunos
---> Yuri passou aqui
+--> Yuri is GAY
